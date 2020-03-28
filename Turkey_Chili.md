@@ -11,7 +11,7 @@ The slightly sweet, cinnamon-laced flavor lead to a friend dubbing it "Christmas
 - 4 cans of Great Value (Wal-Mart brand) Chili Beans
 - 1 diced onion
 - 1 ½ cups of Splenda
-- 2 Jars of Garden Fresh brand Salsa (I have only found this at CostCo so far) – Medium Heat (only one they have there)
+- 2 Large 48oz Jars of Garden Fresh brand Salsa (I have only found this at CostCo so far) – Medium Heat (only one they have there)
 - Corn meal or corn muffin mix (added to thicken chili and soften the spicyness)
 - Cumin
 - Cinnamon
