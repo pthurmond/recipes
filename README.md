@@ -1,2 +1,8 @@
 # About Patrick Thurmond's Recipes
 This is where I have decided to store my recipes that I want to be public. I will add to this as I remember things or come up with them.
+
+## Table of Contents
+
+[Turkey Chili (A.K.A. Christmas Chili)](Turkey_Chili.md)
+
+[Panko Breaded Parmesan Chicken](Panko_Breaded_Parmesan_Chicken.md)
