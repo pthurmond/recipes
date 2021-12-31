@@ -6,3 +6,6 @@ This is where I have decided to store my recipes that I want to be public. I wil
 [Turkey Chili (A.K.A. Christmas Chili)](Turkey_Chili.md)
 
 [Panko Breaded Parmesan Chicken](Panko_Breaded_Parmesan_Chicken.md)
+
+[Instant Pot Hummus](Instant_Pot_Hummus.md)
+
