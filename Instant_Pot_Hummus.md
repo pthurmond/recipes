@@ -12,7 +12,7 @@
 
 #### Hummus
 - 3 cups cooked garbanzo beans still warm
-- 1 1/4 cups warm bean cooking liquid
+- 1 cup warm bean cooking liquid
 - 1/4 cup tahini
 - 6 medium cloves garlic
 - 2 to 3 (6 to 9 tbsp) large lemon juiced (to taste)
