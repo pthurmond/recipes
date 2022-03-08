@@ -18,7 +18,7 @@
 - 2 to 3 (6 to 9 tbsp) large lemon juiced (to taste)
 - 1 tablespoon kosher salt
 - 1 tablespoon ground cumin
-- 1 tablespoon smoked paprika
+- 1 1/2 teaspoon smoked paprika
 - 3/4 cup extra virgin olive oil highest quality
 - 1 tsp of saracha sauce (won't make it spicy)
 
