@@ -21,7 +21,7 @@ Do each of these things in this order.
 4. Mix thoroughly. It will be sticky and messy.
 5. Cover the bowl with plastic wrap or a shower cap and let rest for 60 minutes.
 
-### Needing The Dough
+### Kneading The Dough
 1. After the rest, lift a corner of the dough. Pulling across and fold onto the other side.
 2. Do this pulling and folding all the way around the bowl 20 to 25 times.
 3. Cover the bowl again.
