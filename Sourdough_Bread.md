@@ -1,6 +1,6 @@
 # Sourdough Bread
 
-
+Below is how to make your own sourdough bread. For info on caring for your starter, click here: [Sourdough Starter Care](Sourdough_Starter_Care.md)
 
 ---
 
