@@ -10,3 +10,7 @@ This is where I will store links or copies of other interesting recipes I find.
 [Blue Bayou’s Monte Cristo](https://d23.com/blue-bayou-monte-cristo-sandwich/)
 
 
+## Pies
+
+[Homemade Cherry Pie](https://tastesbetterfromscratch.com/cherry-pie/#recipe)
+[All Butter Pie Crust](https://sallysbakingaddiction.com/all-butter-pie-crust/)
