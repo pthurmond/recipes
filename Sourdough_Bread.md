@@ -45,3 +45,10 @@ Do each of these things in this order.
 5. Score the top of the dough (your choice of pattern).
 6. Use the parchment paper to lower the dough into a baking roaster pan.
 7. Bake in the oven for 40 minutes for a softer crust. Up to 50 minutes for a crispy crust.
+
+
+## Variations
+I also like the Rosemary Parmesan Sourdough and Cinnamon Raisin Sourdough Breads.
+
+- [Rosemary Parmesan Sourdough](https://www.pantrymama.com/sourdough-parmesan-bread-with-rosemary/#recipe): Basically add 150g of parmesan mixed with a sprig or two of fresh rosemary that you dice up during the folding phase of the above recipe.
+- [Cinnamon Raisin Sourdough](https://www.theclevercarrot.com/2020/08/sourdough-cinnamon-raisin-bread/#tasty-recipes-26176-jump-target): Yum, especially with the vanilla soaked raisins. Does require about twice the vanilla.
