@@ -16,10 +16,9 @@
 - 4 cups spinach (~4.25 oz.)
 - 2 (14.5-oz) cans black beans, drained & rinsed
 - 1 cup coconut milk
-- 1 oz Parmesan, finely shredded (about 1/2 cup)
+- 1 oz Parmesan, finely shredded (about 1/2 cup), this is OPTIONAL. Remove to save salt and calories
 - 4 thick-cut slices white country bread
 - 1/2 cup fresh basil leaves, thinly sliced, **plus more torn for serving** [Delish](https://www.delish.com/cooking/a45457114/tuscan-white-bean-skillet-recipe/)
-- -- My Additions --
 - 74g (or more) Red Cabbage
 - 1 tbsp Aleppo Pepper
 
