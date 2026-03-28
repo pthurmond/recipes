@@ -9,6 +9,8 @@
 - 1 can (15 oz) black beans, drained and rinsed
 - 1 can (14 oz) coconut milk
 - 1/2 cup corn kernels
+- 74g (or more) Red Cabbage
+- 1 tbsp Aleppo Pepper
 - 1/2 cup fresh basil leaves, thinly sliced (or 2 tbsp dried basil), **plus more torn for serving** [Delish](https://www.delish.com/cooking/a45457114/tuscan-white-bean-skillet-recipe/)
 - Salt and pepper to taste
 
