@@ -1,4 +1,4 @@
-# 🥘 Creamy Tuscan White Bean Skillet (Vegan)
+# 🥘 Creamy Coconut Bean Skillet (Vegan)
 
 > A plant-based spin on the original, swapping heavy cream for full-fat coconut milk and skipping the Parmesan entirely. The coconut milk adds richness without dairy, and nutritional yeast picks up some of that savory depth the cheese would have provided.
 >
@@ -24,7 +24,7 @@
 | 4 cloves | Garlic, finely chopped |
 | 2 cups | Cherry tomatoes, halved |
 | 74 g | Red cabbage, roughly chopped |
-| 4 cups (~4.25 oz) | Fresh spinach |
+| 4 cups (~4.25 oz) | Fresh spinach (or kale) |
 | 2 cans (14.5 oz each) | Cannellini beans, drained and rinsed *(see bean options below)* |
 | 1 can (13.5 oz) | Full-fat coconut milk |
 | 2 tbsp | Nutritional yeast |
