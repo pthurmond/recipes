@@ -5,6 +5,10 @@ This is where I have decided to store my recipes that I want to be public. I wil
 
 [Baked Potato Soup - A Houlihan's Copycat Recipe](Baked-Potato-Soup--Houlihan's-Copycat.md)
 
+[Creamy Coconut Bean Skillet (Vegan)](White-Bean-Skillet-(Vegan).md)
+
+[Creamy Coconut Tuscan Black Bean Skillet](Creamy-Coconut-Tuscan-Black-Bean-Skillet.md)
+
 [Creamy Tuscan White Bean Skillet](Creamy-Tuscan-White-Bean-Skillet.md)
 
 [Instant Pot Hummus](Instant_Pot_Hummus.md)
@@ -12,6 +16,10 @@ This is where I have decided to store my recipes that I want to be public. I wil
 [Panko Breaded Parmesan Chicken](Panko_Breaded_Parmesan_Chicken.md)
 
 [Sourdough Bread](Sourdough_Bread.md)
+
+[Sourdough Cinnamon Raisin Bread with Vanilla-Soaked Raisins](Sourdough-Cinnamon-Raisin-Bread.md)
+
+[Sourdough Parmesan Bread with Rosemary](sourdough-parmesan-rosemary-bread.md)
 
 [Sourdough Starter Care](Sourdough_Starter_Care.md)
 
