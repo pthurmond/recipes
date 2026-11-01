@@ -15,6 +15,8 @@ This is where I have decided to store my recipes that I want to be public. I wil
 
 [Panko Breaded Parmesan Chicken](Panko_Breaded_Parmesan_Chicken.md)
 
+[Slow Cooker Lime Cilantro Chicken](Slow-Cooker-Lime-Cilantro-Chicken.md0
+
 [Sourdough Bread](Sourdough_Bread.md)
 
 [Sourdough Cinnamon Raisin Bread with Vanilla-Soaked Raisins](Sourdough-Cinnamon-Raisin-Bread.md)
